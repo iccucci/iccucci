@@ -1,4 +1,4 @@
-👋 Hi, Tis is @iccucci
+👋 Hi, This is @iccucci
 
 - 👀 
 I’m so sad that I cannot recovery my older account. 
